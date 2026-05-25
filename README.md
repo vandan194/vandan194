@@ -1,4 +1,4 @@
-# Hi, I'm Vandan 👋
+# Hi, I'm Vandan!
 
 ## About Me 🚀
 
